@@ -1,0 +1,1 @@
+# Zhvillimi-i-nje-Aplikacioni-per-zhvillimin-e-Karrieres
